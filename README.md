@@ -1,1 +1,1 @@
-# Portfolio
+Welcome to my Portfolio! This is where you can see all of my projects and work!
